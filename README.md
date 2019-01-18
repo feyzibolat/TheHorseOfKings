@@ -1,10 +1,10 @@
 # TheHorseOfKings
 Yazilim Yapimi Dersi Odevi
 
-![T3](https://lh3.googleusercontent.com/3eB91Bcyr0zy_ogy9wM4YoQAJbxQQLFPIf8qMycoVZ45KSLbZdhrUGo81Dv6jOUDFi5_JwA92kVcX0Q8Latq=w1920-h938)
+![T3](http://drive.google.com/uc?export=view&id=1SkFFacNaFihbi-uLd8OqQ49AEPRxZoxQ)
 
-![T3](https://lh4.googleusercontent.com/jZohyBb3XxIJUSQs0vUCZkz5fUx5Rcccrv_obEoj4D3iQkZw9-LqRoiESfdCGpyPisdoYMs4IZ4fi7KxZHJt=w1920-h938)
+![T3](http://drive.google.com/uc?export=view&id=1-vUkRqw48r1_lgO1Q-w4TXmMZ7NPXHf5)
 
-![T3](https://lh5.googleusercontent.com/ZER7bcqwmmqEexG_tnX8dSXDROB1RMnNDtPuCQ50a9rXMQkPoatTjkSR3L6my0q6EBUsVswu1U5m8gJdse1M=w1920-h938)
+![T3](http://drive.google.com/uc?export=view&id=1CljM6VPtcKsGQa1uvEKqdgXl0ULTf3Uo)
 
-![T3](https://lh4.googleusercontent.com/SpRGaoVbP_RW-suuTkNIlzMLj0SUfIqpSh_qGWrEJ4VhtCP1z9O_YE2VCn-hTQGIZlXTX_JUBVEjr_wMwAhb=w1920-h938)
+![T3](http://drive.google.com/uc?export=view&id=15dKqBesD5xCjiI0yCGS7oByWDt-3V9J0)
